@@ -31,7 +31,7 @@ Los servicios que ofrece son:
 - **BRANDING:** Reforzamos la identidad de marca alineando la estratégia corporativa con tu proposición única de valor.
 
 
-### Hogar, Decocoración y Mueble de alta calidad
+### Hogar, Decoración y Mueble de alta calidad
 
 Vendemos mobiliario modular y a medida, para las siguientes categorias:
 
