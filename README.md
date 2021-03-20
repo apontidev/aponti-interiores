@@ -86,3 +86,4 @@ Trabajamos con una amplia variedad de empresas para diseñar, construir y montar
 - [Flicker](https://www.flickr.com/people/192529546@N05/)
 - [Quora](https://es.quora.com/profile/Aponti-Interiores)
 - [disqus](https://disqus.com/by/apontiinteriores/)
+- [Vimeo](https://vimeo.com/user136117746)
