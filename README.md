@@ -1,6 +1,6 @@
 ## Aponti Pages
 
-Esta es una página de prueba para Aponti Interiores: [www.aponti.es/](https://www.aponti.es/)
+Esta es una página de prueba para Aponti Interiores: [www.aponti.es](https://www.aponti.es/)
 
 Aponti Interiores es una empresa especializada en diseño de interiores para empresas y particulares.
 
