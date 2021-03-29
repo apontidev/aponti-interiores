@@ -74,6 +74,8 @@ Trabajamos con una amplia variedad de empresas para diseñar, construir y montar
 
 ### Enlances
 
+Enlances tontos para ayudar un poco al SEO
+
 - [Twitter](https://twitter.com/apontistudios)
 - [Facebook](https://www.facebook.com/aponti.interiores)
 - [Linkedin](https://www.linkedin.com/company/aponti-interiores/)
@@ -87,3 +89,9 @@ Trabajamos con una amplia variedad de empresas para diseñar, construir y montar
 - [Quora](https://es.quora.com/profile/Aponti-Interiores)
 - [disqus](https://disqus.com/by/apontiinteriores/)
 - [Vimeo](https://vimeo.com/user136117746)
+- [euroempresas](http://www.euroempresas.es/)
+- [yelp](https://www.yelp.es/biz/aponti-interiores-valencia-2)
+- [google sites](https://aponti-interiores.negocio.site/?m=true)
+- [Páginas Amarillas](https://yellow.place/es/aponti-interiores-valencia-spain)
+- [Cylex](https://www.cylex.es/valencia/aponti-interiores-13714485.html)
+- [Blogger](https://aponti-interiores.blogspot.com/2021/03/nueva-pagina-de-aponti.html)
